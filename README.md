@@ -18,5 +18,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about Spanish and French languages
 - 📫 How to reach me: www.linkedin.com/in/angela-borda-b92614214
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Teemo expert player 
 -->
