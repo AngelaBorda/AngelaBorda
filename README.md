@@ -5,6 +5,7 @@
 - 🤔 I’m looking for help with crypto terminology 
 - 💬 Ask me about Spanish and French languages
 - 📫 How to reach me: www.linkedin.com/in/angela-borda-b92614214
+- - ⚡ Fun fact: Teemo expert player 
 
 <!--
 **AngelaBorda/AngelaBorda** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
